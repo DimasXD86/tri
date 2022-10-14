@@ -1,0 +1,2 @@
+# tri
+TEMBAK KUOTA TRHEE
